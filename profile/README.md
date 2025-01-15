@@ -1,1 +1,1 @@
-[Team 42-b3yond-6ug](https://bugbuster.cc)
+[Team 42-b3yond-6ug](https://b3yond.org)
